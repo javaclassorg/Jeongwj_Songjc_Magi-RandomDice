@@ -14,4 +14,4 @@
  #### 패배시 아이스크림 기프티콘을 쏜다!
 
 
-<img src="https://i.imgur.com/D48quai.pngW.png" alt="result"></img>
+<img src="https://i.imgur.com/Wv5GaJW.png" alt="result"></img>
